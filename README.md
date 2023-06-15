@@ -1,2 +1,2 @@
 # Incorhosting
-Wow you saw this orgnsation congrats!
+Wow you saw this organization congrats!
